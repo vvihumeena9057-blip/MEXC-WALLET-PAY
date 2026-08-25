@@ -1,0 +1,2 @@
+# MEXC-WALLET-PAY
+Mexc wallet PAY EARNING MONEY 🤑💰🤑💰🤑💰
